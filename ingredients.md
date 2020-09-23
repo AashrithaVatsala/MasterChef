@@ -1,17 +1,19 @@
-## oil
+## The ingredients of this recipe are : 
 
-## mustard seeds
+### 1. oil
 
-## cumin seeds 
+### 2. mustard seeds
 
-## onions 
+### 3. cumin seeds 
 
-## green chilles  
+### 4. onions 
 
-##  tomatoes
+### 5. green chilles  
 
-## chilli powder
+###  6. tomatoes
 
-## salt
+### 7. chilli powder
 
-## cumin seeds powder
+### 8. salt
+
+### 9. cumin seeds powder
