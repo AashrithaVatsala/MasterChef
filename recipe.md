@@ -1,6 +1,6 @@
-### first add oil to the pan 
+### **step 1** : first add oil to the pan 
 
-### along with mustard seeds snd cumin seeds in the pan and let them fry
+### mustard seeds snd cumin seeds in the pan and let them fry
  
 ### add onions and green chilles to the pan and let them cook
 
