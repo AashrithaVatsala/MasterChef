@@ -1,4 +1,4 @@
-### _step 1 :_ first add oil to the pan 
+### __step 1 :__ first add oil to the pan 
 
 ### mustard seeds snd cumin seeds in the pan and let them fry
  
